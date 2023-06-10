@@ -1,0 +1,2 @@
+# FuTasoftware
+Game manga 
